@@ -1,5 +1,5 @@
 Projects:
-* [ออซัม-รับนวดภูเก็ต](https://github.com/mczrtoy/xn----uwf2a0bgvg4cev0cxda1dd7k1erf)
+* [ออซัม-รับนวดภูเก็ต](https://mczrtoy.github.io/xn----uwf2a0bgvg4cev0cxda1dd7k1erf/)
 
 Social Profiles (NSFW):
 * 🔵 Facebook [https://www.facebook.com/steven.mac.5851](https://www.facebook.com/steven.mac.5851)
