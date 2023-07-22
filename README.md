@@ -7,6 +7,7 @@ Social Profiles (NSFW):
 * ⬛ TikTok [https://www.tiktok.com/@mczrtoy](https://www.tiktok.com/@mczrtoy)
 * 🐦 Twitter [https://twitter.com/maczrtoy](https://twitter.com/maczrtoy)
 * 🔴 Reddit [https://www.reddit.com/user/mczrtoy](https://www.reddit.com/user/mczrtoy)
+* 🟥 YouTube [https://youtube.com/@mczrtoy](https://youtube.com/@mczrtoy)
 
 
 Pages:
